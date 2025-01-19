@@ -24,6 +24,9 @@
 | [Подвеска](https://www.instagram.com/p/DEz3TWJNj-D/?igsh=MTRxNXJ2Z3NveWlkcA==) | ? | Есть в магазине, на сайте пока не появилась |
 | [Карабин](https://www.mrwolee.com/accessories/tproduct/473186600-197862376522-key-holder-equipment-mini-grey) | 590 |  |
 | [Коврик для мыши](https://www.dns-shop.ru/product/1e7c00deff413330/kovrik-steelseries-qck-hard--cernyj/) | 4500 |  |
+| [Пепельница](https://kixbox.ru/product/respectable-ceramic-tray) | 6392 |  |
+| [Копилка](https://kixbox.ru/product/kopilka-lord-nermal-ceramic-coin-bank) | 4995 |  |
+| [Лоферы](https://kixbox.ru/product/lofery-adrian-quad) | 12495 | 36-37 |
 
 
 
