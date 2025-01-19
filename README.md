@@ -28,7 +28,13 @@
 | [Копилка](https://kixbox.ru/product/kopilka-lord-nermal-ceramic-coin-bank) | 4995 |  |
 | [Лоферы](https://kixbox.ru/product/lofery-adrian-quad) | 12495 | 36-37 |
 | [Кофта](https://kixbox.ru/product/top-trikotazhnyy-kitten-black-rib-long-sleeve-top-w-fur-cuffs) | 4995 | |
-
-
+| [Украшения](https://www.instagram.com/_z_b_b_b_?igsh=YjltZm1zbTZ6NHJl) | ? | Что-то серебряное отсюда |
+| [Кроксы](https://ozon.ru/t/A3dnQmQ) | 6250 |  |
+| [Джиббитс](https://www.crocs.com/p/black-cat/10009453.html?cgid=symbols-sayings-jibbitz&cid=001) | ? |  |
+| [Джиббитс](https://www.crocs.com/p/silver-triple-heart-chain/10013761.html?cgid=jewels-metals-jibbitz&cid=001) | ? |  |
+| [Джиббитс](https://www.crocs.com/p/silver-star-badge/10014407.html?cgid=jewels-metals-jibbitz&cid=001) | ? |  |
+| [Джиббитс](https://www.crocs.com/p/hk-friends-cinnamoroll/10014068.html?cgid=single-jibbitz&cid=001)| ? |  |
+| [Джиббитс](https://www.crocs.com/p/lil-black-star/10011320.html?cgid=single-jibbitz&cid=001) | ? |  |
+| [Джиббитс](https://www.crocs.com/p/tiny-silver-circle/10014310.html?cgid=single-jibbitz&cid=001) | ? |  |
 
 
