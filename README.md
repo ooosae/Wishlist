@@ -27,6 +27,8 @@
 | [Пепельница](https://kixbox.ru/product/respectable-ceramic-tray) | 6392 |  |
 | [Копилка](https://kixbox.ru/product/kopilka-lord-nermal-ceramic-coin-bank) | 4995 |  |
 | [Лоферы](https://kixbox.ru/product/lofery-adrian-quad) | 12495 | 36-37 |
+| [Кофта](https://kixbox.ru/product/top-trikotazhnyy-kitten-black-rib-long-sleeve-top-w-fur-cuffs) | 4995 | |
+
 
 
 
