@@ -36,5 +36,6 @@
 | [Джиббитс](https://www.crocs.com/p/hk-friends-cinnamoroll/10014068.html?cgid=single-jibbitz&cid=001)| ? |  |
 | [Джиббитс](https://www.crocs.com/p/lil-black-star/10011320.html?cgid=single-jibbitz&cid=001) | ? |  |
 | [Джиббитс](https://www.crocs.com/p/tiny-silver-circle/10014310.html?cgid=single-jibbitz&cid=001) | ? |  |
-
+| [Джерси](https://vsrap.shop/catalog/clothes/jersey/gspd_sportmode_jersey/?oid=31393)| 8990 | |
+| [Футболка](https://vsrap.shop/catalog/clothes/tshirts/gspd_sportmode_tshirt/?oid=31414)| 5990 | |
 
