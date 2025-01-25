@@ -21,7 +21,7 @@
 | [Футболка](https://volchok.ru/shop/70167-futbolka_volchokxbetboomxgorbufet_futbolka_volchokxbetboomxgorbufet/) | 3300 |  |
 | [Бомбер](https://volchok.ru/shop/70468-bomber_seraphim_bomber_seraphim/) | 16000 |  |
 | [Шорты](https://volchok.ru/shop/70173-shorty_volchokxbetboomxgorbufet_shorty_volchokxbetboomxgorbufet/) | 2400 |  |
-| [Подвеска](https://www.instagram.com/p/DEz3TWJNj-D/?igsh=MTRxNXJ2Z3NveWlkcA==) | ? | Есть в магазине, на сайте пока не появилась |
+| [Подвеска](https://volchok.ru/shop/70532-brelok_soft_tribal_brelok_soft_tribal/) | 1400 |  |
 | [Карабин](https://www.mrwolee.com/accessories/tproduct/473186600-197862376522-key-holder-equipment-mini-grey) | 590 |  |
 | [Коврик для мыши](https://www.dns-shop.ru/product/1e7c00deff413330/kovrik-steelseries-qck-hard--cernyj/) | 4500 |  |
 | [Пепельница](https://kixbox.ru/product/respectable-ceramic-tray) | 6392 |  |
@@ -38,4 +38,5 @@
 | [Джиббитс](https://www.crocs.com/p/tiny-silver-circle/10014310.html?cgid=single-jibbitz&cid=001) | ? |  |
 | [Джерси](https://vsrap.shop/catalog/clothes/jersey/gspd_sportmode_jersey/?oid=31393)| 8990 | |
 | [Футболка](https://vsrap.shop/catalog/clothes/tshirts/gspd_sportmode_tshirt/?oid=31414)| 5990 | |
+| [Шоппер](https://volchok.ru/shop/70421-shopper_seraphim_shopper_seraphim/)| 3800 ||
 
